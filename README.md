@@ -1,0 +1,2 @@
+# PROFETIZA-LA-PALABRA-MINISTERIO-DE-VIDA-
+Evangelio de Dios 
